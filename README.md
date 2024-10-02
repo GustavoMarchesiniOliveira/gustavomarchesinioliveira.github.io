@@ -1,4 +1,4 @@
-## INICIO
+## Inicio
 
 ### PERFIS
 
