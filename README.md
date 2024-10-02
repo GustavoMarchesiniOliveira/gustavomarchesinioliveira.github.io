@@ -1,4 +1,6 @@
-## MINHAS ORGANIZAÇÕES
+### MINHAS ORGANIZAÇÕES
+
+---
 
 [@iMarchesiniO97](https://github.com/iMarchesiniO97)
 
